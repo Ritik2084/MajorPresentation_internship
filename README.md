@@ -1,2 +1,2 @@
 # MajorPresentation_internship
-https://github.com/Ritik2084/MajorPresentation_internship/blob/main/Mid_Term/Ritik.xlsx
+https://docs.google.com/spreadsheets/d/15AXb3FOWGrm_xP8HnReW029eIsyEVzkS/edit?gid=649916487#gid=649916487
